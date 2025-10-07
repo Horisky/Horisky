@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **tianyu.jty@outlook.com**
 
-<h3 align="left">Wellcome!!!</h3>
+<h3 align="left">Welcome!!!</h3>
 <p align="left">
 </p>
 
